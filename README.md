@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي نور عيني وقلبي
+> تعالى في حضني وريحني
+> كل ليلة بشتاق لعيونك
+> في غيابك روحي بتسألني
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
